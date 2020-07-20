@@ -1,2 +1,0 @@
-# Hallo-Semuanya
-Tetap tersenyum 
